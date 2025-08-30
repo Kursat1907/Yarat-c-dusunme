@@ -1,0 +1,2 @@
+# Yarat-c-dusunme
+YaratıcıDusunme
